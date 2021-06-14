@@ -5,6 +5,10 @@
 ### **List**
 
 - foundation
+- concealer
 - lipstick
 - false eyelash
+- mascara 
+- eyeliner 
+- 
 
