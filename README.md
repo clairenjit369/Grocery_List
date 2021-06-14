@@ -14,3 +14,6 @@
 
 <br>
 Costco Website: https://www.costco.com/grocery-household.html
+Potato Chips
+Peaches 
+Lysol
